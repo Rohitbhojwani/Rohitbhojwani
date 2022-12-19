@@ -1,4 +1,6 @@
-![header](https://user-images.githubusercontent.com/91414774/208298218-ca5b941d-55d7-441f-a4ef-648859e1c8e7.gif)
+![header](https://user-images.githubusercontent.com/91414774/208506117-7cb15f18-1843-4daa-88a6-37b75ff77127.gif)
+
+
 
 
 <h1 align="center">Hi 👋, I'm Rohit Bhojwani</h1>
