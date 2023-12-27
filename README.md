@@ -18,7 +18,7 @@
 
 - 📫 How to reach me **rbbhojwani123@gmail.com**
 
-- 📄 Know about my experiences ((https://drive.google.com/file/d/1ZFB6IY1JnMeuZz9U383vamhzwujcLODA/view?usp=sharing))
+- 📄 Know about my experiences (https://drive.google.com/file/d/1ObLHzkPMzcVS8jDoMtr0tAstHS_-eqhT/view?usp=sharing)
 
 
 <h3 align="left">Connect with me:</h3>
